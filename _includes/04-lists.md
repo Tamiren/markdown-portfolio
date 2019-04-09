@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Tami
+2. Work
+3. School
+4. Painting
